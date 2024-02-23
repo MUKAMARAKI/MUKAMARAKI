@@ -2,7 +2,7 @@
 - 👀 I’m interested in computer programming.
 - 🌱 I’m currently learning Django.
 - 💞️ I’m looking to collaborate on making projects.
-- 📫 How to reach me https://sites.google.com/d/1fxX7NQHVSEpYAwf_JS-OQGk31TK66seu/p/1mTOtNjOVO8zqVbF3qEemYcDWa7bQA9F5/edit?pli=1.
+- 📫 How to reach me https://www.asyv.org/.
 - 😄 Pronouns: He/His/Him.
 - ⚡ Fun fact: I know dancing secretly.
 
