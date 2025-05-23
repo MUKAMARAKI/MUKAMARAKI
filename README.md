@@ -17,9 +17,12 @@
 - I’m looking to work with other students, mentors, or developers on social impact tech projects  
 - Open to mentorship, internships, or contribution opportunities
 
-## 📫 Reach Me At
-- My school: [Agahozo-Shalom Youth Village](https://www.asyv.org/)  
-- LinkedIn & email coming soon!
+## 📬 Contact
+
+- **School:** [Agahozo-Shalom Youth Village](https://www.asyv.org/)  
+- **LinkedIn:** [linkedin.com/in/felicien-mukamarakiza](https://www.linkedin.com/in/felicien-mukamarakiza)  
+- **Email:** felicienmukamarakiza621@gmail.com | mukamarakizaf4@gmail.com
+
 
 ## 😄 Fun Fact
 I secretly know how to dance... pretty well 😉
